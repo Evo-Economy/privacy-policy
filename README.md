@@ -27,4 +27,4 @@ We do not share your information with third parties except:
 We may update our Privacy Policy from time to time. We will notify you of any changes by posting the new Privacy Policy on this page. Changes are effective when they are posted on this page.
 
 ### 7. Contact Information
-If you have any questions about this Privacy Policy, please contact us at evo@unitygroup.club.
+If you have any questions about this Privacy Policy, please contact us at https://discord.gg/aSp3ABaPPE.
